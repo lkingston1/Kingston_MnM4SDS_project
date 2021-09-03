@@ -1,1 +1,1 @@
-# Kingston_project
+# Linette's Awesome GEOG Project
